@@ -1,0 +1,1 @@
+Até o momento o Curso esta muito Show aprendendo demais
